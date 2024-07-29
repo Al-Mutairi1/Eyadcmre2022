@@ -11,3 +11,8 @@ camry 2025
 
 
 https://www.dropbox.com/scl/fi/hj9b0ppmy3xo5p2taegtf/camry25_by_Meto_and_iEviil.zip?rlkey=zmfhckqd7c662xhzvt92swq85&dl=1
+
+camry 2004
+
+
+https://www.dropbox.com/scl/fi/tjgaxkhumjdwgsnlrfq2x/wLi_camry2004.zip?rlkey=g409gw2lymegg6rgbl11h2x5d&dl=1
