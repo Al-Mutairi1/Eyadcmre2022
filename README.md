@@ -20,3 +20,13 @@ https://www.dropbox.com/scl/fi/tjgaxkhumjdwgsnlrfq2x/wLi_camry2004.zip?rlkey=g40
 optima
 
 https://www.dropbox.com/scl/fi/wf1apjocz9728tfi2lrb1/Optima.zip?rlkey=dm8p0ali90stju5dwlvb0xsw0&dl=1
+
+elantra 2020
+
+https://www.dropbox.com/scl/fi/4vrveq78a240akvi0whzs/elantraad.zip?rlkey=m2ezl5dbcsiv6b8nikx7ok4tm&dl=1
+
+
+
+hulix 
+
+https://www.dropbox.com/scl/fi/35et0z74ux23p2uizv3j5/AM-hulix.zip?rlkey=weoiyeujqwwfprb83xzdgqlj0&dl=1
