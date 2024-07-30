@@ -40,3 +40,12 @@ https://www.dropbox.com/scl/fi/vnd6itq9zapyubty3l0b5/warning_ddsn.zip?rlkey=m5t5
 tlc200k
 
 https://www.dropbox.com/scl/fi/rtb0sq3c9lai5felna8b4/tlc200k.zip?rlkey=61ys4xzk51x18t1oc6bz240yg&dl=1
+
+
+altima 2024 
+
+https://www.dropbox.com/scl/fi/7nu4d2ja9o4x6ajy16ffz/Nissan-Altima-2023-2024.zip?rlkey=rcw2ptoe4xghwb3v7rhqz73wu&dl=1
+
+alfridiya
+
+https://www.dropbox.com/scl/fi/5pwz6kavaptl81am6ybur/alfrusiya.zip?rlkey=eps4dynq93oph5kz7h6dipxgf&dl=0
