@@ -55,3 +55,10 @@ https://www.dropbox.com/scl/fi/5pwz6kavaptl81am6ybur/alfrusiya.zip?rlkey=eps4dyn
 hulix 1
 
 https://www.dropbox.com/scl/fi/3ln7rlczjetrs9gqas73m/taskhulix.zip?rlkey=mg01s5pidqr0xuilof3jr0y4m&dl=1
+
+
+
+map3thim sly
+
+
+https://www.dropbox.com/scl/fi/t9jekcaykgvbkldtdiyke/3thim_AL_SLy.zip?rlkey=1u3qhxhta22cqi9rrbwde2ubh&dl=1
