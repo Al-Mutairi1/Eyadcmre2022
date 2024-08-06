@@ -54,4 +54,4 @@ https://www.dropbox.com/scl/fi/5pwz6kavaptl81am6ybur/alfrusiya.zip?rlkey=eps4dyn
 
 hulix 1
 
-https://www.dropbox.com/scl/fi/3ln7rlczjetrs9gqas73m/taskhulix.zip?rlkey=mg01s5pidqr0xuilof3jr0y4m&dl=0
+https://www.dropbox.com/scl/fi/3ln7rlczjetrs9gqas73m/taskhulix.zip?rlkey=mg01s5pidqr0xuilof3jr0y4m&dl=1
