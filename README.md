@@ -49,3 +49,9 @@ https://www.dropbox.com/scl/fi/7nu4d2ja9o4x6ajy16ffz/Nissan-Altima-2023-2024.zip
 alfridiya
 
 https://www.dropbox.com/scl/fi/5pwz6kavaptl81am6ybur/alfrusiya.zip?rlkey=eps4dynq93oph5kz7h6dipxgf&dl=0
+
+
+
+hulix 1
+
+https://www.dropbox.com/scl/fi/3ln7rlczjetrs9gqas73m/taskhulix.zip?rlkey=mg01s5pidqr0xuilof3jr0y4m&dl=0
