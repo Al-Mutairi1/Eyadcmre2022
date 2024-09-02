@@ -80,3 +80,10 @@ map Riyadh Tookee
 
 
 https://www.dropbox.com/scl/fi/hcw654k3gn78tpou9n2qd/Riyadh-Tookee-Map.zip?rlkey=fv4mxrek74362vn3xjd29xlyr&st=y8typc14&dl=1
+
+
+
+
+GMC yukon
+
+https://www.dropbox.com/scl/fi/8jxrpo23yg9acz9u0xd78/GMC_Yukon.zip?rlkey=llehd0h2acfyza6v0dpo5gkh0&st=2m7irso5&dl=1
