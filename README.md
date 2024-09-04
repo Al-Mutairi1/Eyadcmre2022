@@ -87,3 +87,11 @@ https://www.dropbox.com/scl/fi/hcw654k3gn78tpou9n2qd/Riyadh-Tookee-Map.zip?rlkey
 GMC yukon
 
 https://www.dropbox.com/scl/fi/8jxrpo23yg9acz9u0xd78/GMC_Yukon.zip?rlkey=llehd0h2acfyza6v0dpo5gkh0&st=2m7irso5&dl=1
+
+
+
+gxr 2024
+
+
+
+https://www.dropbox.com/scl/fi/nku7kls9rb6xbmb4p5kp9/Toyota_Land_Cruiser_300.zip?rlkey=gnaurhut1gjg2iwot04a7jeo1&st=8l3cjdon&dl=1
