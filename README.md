@@ -177,4 +177,5 @@ sliver
 
 https://www.mediafire.com/file/gevu3xbzronm4cd/Sliverado_GMT900.zip/file
 
-
+map gta sa
+https://www.mediafire.com/file/ywv48hid6by1p10/gtasa_ls.zip/file
