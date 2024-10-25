@@ -178,4 +178,18 @@ sliver
 https://www.mediafire.com/file/gevu3xbzronm4cd/Sliverado_GMT900.zip/file
 
 map gta sa
-https://www.mediafire.com/file/ywv48hid6by1p10/gtasa_ls.zip/file
+https://www.mediafire.com/file/ywv48hid6by1p10/gtasa_ls.zip/fil
+
+
+
+
+VIOLENT
+https://www.mediafire.com/file/163wedwspmajf3q/VIOLENT_AL6O8Y.rar/file
+
+
+
+gmc
+https://modsfire.com/b9W9i98A43b0k4F
+
+
+https://modsfire.com/b9W9i98A43b0k4F
